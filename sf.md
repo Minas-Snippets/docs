@@ -96,6 +96,18 @@ But, when it comes to female fighters, the next one, Sarah Connor from Terminato
 
 ![Sarah Connor&quot;: Das hat Linda Hamilton nach &quot;Terminator&quot; gemacht!](https://www.tvmovie.de/bilder/758/2015/06/22/50790-linda-hamilton-als-sarah-connor-terminator.jpg?itok=2ApdWSdt) 
 
+7, Kevin Flynn, I didn't know, but [Patrick Seemann (https://twitter.com/nohillside)@nohillside](https://twitter.com/nohillside)
+
+did. He's from Tron (A film, I didn't see)
+
+
+
+![Kevin Flynn | Disney Wiki | Fandom](https://static.wikia.nocookie.net/disney/images/0/0a/Flynn_infobox1.jpg/revision/latest/top-crop/width/360/height/360?cb=20091224041628)
+
+
+
+
+
 7, K. Flynn, I don't know again, whilst 8, Ryan Stone of Gravity, might be OK for fixing the injured and is also great at improvising:
 
 ![Depictions of Women in STEM: Dr. Ryan Stone - Westcoast Women in  Engineering, Science and Technology - Simon Fraser University](https://www.sfu.ca/content/sfu/wwest/WWEST_blog/depictions-of-women-in-stem--dr--ryan-stone/jcr:content/main_content/textimage_1/image.img.640.medium.jpg/1499189746324.jpg)
